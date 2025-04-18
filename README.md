@@ -1,0 +1,1 @@
+# -Optimal-proportion-of-strong-communication-ability-players-promotes-cooperative-behavior
